@@ -1,17 +1,2 @@
 # birthday
 ## BIRTHDAY!!
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-birthday
